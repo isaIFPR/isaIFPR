@@ -1,7 +1,7 @@
 # ISABELA GOHL 🥰
 ## *Terceiro TI, 2023*
-### **IFPR, instituto federal do Paraná**
+### **Não corrigir nossas falhas é o mesmo que cometer novos erros!**
 
 * 16y
-* UVA, União da vitória
+* IFPR
 * PR/SC
